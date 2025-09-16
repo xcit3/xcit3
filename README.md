@@ -15,7 +15,7 @@ Currently about to finish my HSC (the comeback is most certainly real, I promise
 - 🎮 Absolutely loving Silksong at the moment
 
 
-### 📖 [My portfolio!](https://xcit3.github.io/)
+### 📖 [My portfolio!](https://xcit3.github.io/portfolio)
 
 
 ### 🛠 &nbsp;Tech Stack
