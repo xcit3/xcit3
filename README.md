@@ -9,7 +9,7 @@ Currently about to finish my HSC (the comeback is most certainly real, I promise
 
 ### 👨🏻‍💻 &nbsp;About Me
 - 🎓 &nbsp; Student at St Andrew's Cathedral School Sydney
-- ✍️ &nbsp; Gonna write that textbook tomorrow
+- ✍️ &nbsp; I'll get it done tomorrow
 - 🔭 I’m currently working on trying to not die during the HSC
 - 💬 Ask me about DnD 
 - 🎮 Absolutely loving Silksong at the moment
